@@ -1,0 +1,8 @@
+# REPOSITORY FOR NT PYTHON CLASS
+
+![TRUTH](https://i.redd.it/jd25yqv8xsf31.jpg)
+
+## OUTLINE
+
+*ADD SOMETHING HERE
+
